@@ -1,0 +1,1 @@
+Kto kuma ten kuma
